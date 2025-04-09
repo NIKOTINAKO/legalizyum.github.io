@@ -1,1 +1,1 @@
-# LEGALIZYUM mi amor
+Legalizyum
